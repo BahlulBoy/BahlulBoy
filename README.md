@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **https://www.linkedin.com/in/ahfaitar-abdil-hakim-1b643b222/**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
